@@ -16,7 +16,7 @@ Discover Indian Artists: Check out the trending and popular artists from India f
 Create Playlists: Build customized playlists to curate your music library.
 Enjoy Your Music: Sit back, relax, and enjoy the music with our user-friendly interface and high-quality audio playback.
 Get Started
-To get started with SanGit, simply download the app from the our site [amaclass.com] and start exploring the vast world of music at your fingertips.
+To get started with SanGit, simply download the app from the our site [amaclass.000.pe] and start exploring the vast world of music at your fingertips.
 
 Feedback
 We value your feedback! If you have any suggestions, questions, or concerns, please don't hesitate to reach out to us at [amaclass123@email.com]. Your input helps us improve and enhance your music listening experience.
